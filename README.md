@@ -1,4 +1,4 @@
-- 👋 Привет, Я немного говорю по русски. Меня зовут Aahlaysia. (Hello, i speak a little russian. My name is Aahlaysia aka @aahlaysiag
+- 👋 Привет, Я немного говорю по русски. Меня зовут Aahlaysia. (Hello, I speak a little russian. My name is Aahlaysia) aka @aahlaysiag
 - 👀 I’m interested in Graphic Design, Halo, Русский and cats.
 - 🌱 I’m currently learning graphic design
 - 💞️ I’m looking to collaborate on ...
